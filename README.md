@@ -3,7 +3,7 @@
 me ^ this is where i was when i beat you in guilty gear
 
 ![IMG_5182](https://github.com/user-attachments/assets/a0cc0e0a-5fa7-43cd-9203-241c7ec7bc17)
-##NO SIN!! HOLDING IT IN DOESNT DO ANYTHING
+NO SIN !!! STOP !!! HOLDING IT IN DOESNT DO ANYTHING !!!!
 <!--
 **sin-kiske/Sin-kiske** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
